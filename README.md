@@ -1,4 +1,6 @@
 
 ### 📸 Project Video
 
-![video](video.mp4)
+
+https://github.com/user-attachments/assets/5042f960-f706-4efb-9eba-74a079caa500
+
